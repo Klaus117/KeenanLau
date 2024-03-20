@@ -1,2 +1,0 @@
-# KeenanLau
-My Portfolio
